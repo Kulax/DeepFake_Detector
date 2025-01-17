@@ -1,1 +1,1 @@
-Major project Deta
+Major project Detals
